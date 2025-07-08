@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @BravoEye
+- 👋 Hello, I’m @BravoEye
 - 😄 Pronouns: He, Him
